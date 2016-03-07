@@ -1,2 +1,2 @@
 # hello_world
-my first rep
+my first time here, feeling clueless
